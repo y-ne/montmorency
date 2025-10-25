@@ -9,6 +9,8 @@ this both can reduce smoke
 - Glycerin 
 - Citric Acid (corrosive)
 
+what i've heard from forums
+
 - Vaseline ( to make it behave like goo )
 - White Spirit
 
