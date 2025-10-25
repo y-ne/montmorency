@@ -12,7 +12,7 @@ this both can reduce smoke
 what i've heard from forums
 
 - Vaseline ( to make it behave like goo )
-- White Spirit
+- White Spirit ( known as thinner, for paint. probably not recommended )
 
 
 ## Notes
